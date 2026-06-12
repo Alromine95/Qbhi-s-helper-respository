@@ -1,1 +1,0 @@
-# Qbhi-s-helper-respository
